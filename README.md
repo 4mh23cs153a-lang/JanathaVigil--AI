@@ -1,1 +1,1 @@
-# JanathaVigil--AI
+# JanathaVigil-AI
